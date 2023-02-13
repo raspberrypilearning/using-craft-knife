@@ -1,7 +1,7 @@
-Craft and utility knives are very useful when making models, but you must be very careful when using them, as they are extremely sharp and can easily cause an injury.
+Les couteaux de bricolage et utilitaires sont très utiles lors de la fabrication de modèles, mais tu devras être très prudent lorsque tu les utilises, car ils sont extrêmement tranchants et peuvent facilement causer des blessures.
 
-If you are using a craft or utility knife, make sure you have a responsible adult with you, or ask them to do the cutting for you if you prefer.
+Si tu utilises un couteau de bricolage ou utilitaire, assure-toi d'être accompagné d'un adulte responsable ou demande-lui de faire la coupe pour toi si tu préfères.
 
-It's also a good idea to use a cutting mat to protect the surface you are working on. If you don't have a cutting mat, a kitchen chopping board is a great alternative but ask permission before you use something that isn't yours.
+C'est aussi une bonne idée d'utiliser un tapis de découpe pour protéger la surface sur laquelle tu travailles. Si tu n'as pas de tapis de découpe, une planche à découper de cuisine est une excellente alternative, mais demande la permission avant d'utiliser quelque chose qui ne t'appartiens pas.
 
-![A box cutting knife.](https://upload.wikimedia.org/wikipedia/commons/c/cf/Box-cutter.jpg)
+![Un couteau coupe-boîte.](https://upload.wikimedia.org/wikipedia/commons/c/cf/Box-cutter.jpg)
