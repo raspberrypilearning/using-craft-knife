@@ -1,7 +1,7 @@
-Craft and utility knives are very useful when making models, but you must be very careful when using them, as they are extremely sharp and can easily cause an injury.
+Stanley en hobbymessen zijn erg handig bij het maken van modellen, maar je moet heel voorzichtig zijn bij het gebruik ervan, omdat ze extreem scherp zijn en gemakkelijk verwondingen kunnen veroorzaken.
 
-If you are using a craft or utility knife, make sure you have a responsible adult with you, or ask them to do the cutting for you if you prefer.
+Als je een stanley- of hobbymes gebruikt, zorg er dan voor dat er een volwassene bij is, of vraag hem of haar om het snijden voor je te doen als je dat liever hebt.
 
-It's also a good idea to use a cutting mat to protect the surface you are working on. If you don't have a cutting mat, a kitchen chopping board is a great alternative but ask permission before you use something that isn't yours.
+Het is ook een goed idee om een snijmat te gebruiken om het oppervlak waar je op werkt te beschermen. Als je geen snijmat hebt, is een snijplank een goed alternatief, maar vraag toestemming voordat je iets gebruikt dat niet van jou is.
 
-![A box cutting knife.](https://upload.wikimedia.org/wikipedia/commons/c/cf/Box-cutter.jpg)
+![Een stanleymes.](https://upload.wikimedia.org/wikipedia/commons/c/cf/Box-cutter.jpg)
